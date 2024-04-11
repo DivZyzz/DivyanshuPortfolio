@@ -1,1 +1,1 @@
-Vist https://divzyzz.github.io/DivyanshuPortfolio/about.html
+Vist https://divzyzz.github.io/DivyanshuPortfolio/
